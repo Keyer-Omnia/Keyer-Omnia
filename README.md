@@ -50,7 +50,7 @@
 ### 🗣️ Idiomas
 
 - Português — nativo  
-- Inglês — intermediário (aprendendo pelo YouTube e leitura técnica)  
+- Inglês — intermediário
 
 ---
 
